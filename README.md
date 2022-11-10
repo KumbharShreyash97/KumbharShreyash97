@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate with *Elon Musk 🙂*
 
-- 💬 Ask me about *CEH, GIT, ....*
+- 💬 Ask me about *CEH, GIT, HTML/CSS ....*
 
 - 📫 How to reach me *shreyashkumbhar7710@gmail.com*
 
